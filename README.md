@@ -14,3 +14,12 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+# Halo semua! 
+
+Perkenalkan nama saya **Ade Adam Nisa Sabrina**.\
+
+Saya seorang **Mahasiswa** di [Universitas Sebelas Maret](https://uns.ac.id/en//).\
+
+Saya mengambil program Sarjana Matematika [FMIPA UNS](https://mipa.uns.ac.id/).\
+
+Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/adeadamnisa/)ku ya.
